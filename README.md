@@ -1,2 +1,1 @@
-
-https://www.youtube.com/watch?v=J9uq43Gana4&list=PLGvgepw5e1awJDB8KynZiM5ZL1SrqIwUr&index=8&t=4m22s
+https://www.youtube.com/watch?v=jSQEse1N3Rs&list=PLGvgepw5e1awJDB8KynZiM5ZL1SrqIwUr&index=7&t=6m13s
